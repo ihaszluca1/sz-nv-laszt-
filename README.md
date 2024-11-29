@@ -1,0 +1,1 @@
+# sz-nv-laszt-
