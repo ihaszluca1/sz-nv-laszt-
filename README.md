@@ -1,1 +1,1 @@
-# sz-nv-laszt-
+# szinvalaszto
